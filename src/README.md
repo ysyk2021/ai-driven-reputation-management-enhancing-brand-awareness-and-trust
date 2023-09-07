@@ -10,3 +10,7 @@ The following chapters will cover a range of topics related to AI-driven reputat
 Whether you are a business owner, marketer, or reputation management professional, "AI-Driven Reputation Management" provides valuable insights and practical strategies for leveraging AI to enhance your brand reputation. By the end of this book, you will have a deep understanding of the role of AI in reputation management and how it can be used to build trust and loyalty with customers and stakeholders.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
